@@ -6,4 +6,4 @@ Currently building [**DeepFind.Me**](https://deepfind.me) and write a few blogs 
 **Find me here:**  
 - [Website](https://www.buddhsentripathi.com)  
 - [Blogs](https://www.buddhsentripathi.com/blogs)
-- [𝕏/Twitter](https://www.x.com/btr1pathi)  
+- [𝕏/Twitter](https://www.x.com/senbuilds)  
